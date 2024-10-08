@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Saikalyan99
 - 👀 I’m interested in C programming 
-- 📫 You can reach me on discord FoxClive#9287
+- 📫 You can reach me on discord foxclive
